@@ -1,8 +1,8 @@
-## Me chamo Joyce Lins 👩🏽‍💻
+## Olá, me chamo Joyce Lins 👩🏽‍💻
 
 
 
-Você pode me encontrar nestas redes sociais
+Você pode me encontrar nessas redes sociais
 
 [![Likedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](linkedin.com/in/joyce-l-817782140)
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/joy.lp/)
